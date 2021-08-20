@@ -2,7 +2,9 @@
 
 
 
-This project is the source code of the stupid copy paster Alone Dark#1881
+This project is the source code of the stupid copy paster
+
+He changed his Discord address. He new discord adress : Winter__#1881
 
 Some evidence
 
