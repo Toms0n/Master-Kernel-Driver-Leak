@@ -4,7 +4,7 @@
 
 This project is the source code of the stupid copy paster
 
-He changed his Discord address. He new discord adress : Winter__#2000
+He changed his Discord address. He new discord adress : Winter__#2006
 
 Some evidence
 
