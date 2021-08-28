@@ -18,6 +18,8 @@ Some evidence
 what do you expect from a guy who doesn't know how to add hip fire xD lol
 ![alt text](https://i.imgur.com/n4Nw6i1.png)
 
+Fools like this just right click and try to sell their garbage cheats without knowing anything.
+
 NULL DRIVER xD
 
 Setup:
