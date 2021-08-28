@@ -15,6 +15,9 @@ Some evidence
 
 ![alt text](https://i.imgur.com/ZglClBO.png)
 
+what do you expect from a guy who doesn't know how to add hip fire xD lol
+![alt text](https://i.imgur.com/n4Nw6i1.png)
+
 NULL DRIVER xD
 
 Setup:
