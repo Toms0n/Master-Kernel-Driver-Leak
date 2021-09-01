@@ -1,10 +1,20 @@
 # Master-Kernel-Driver-Leak
 
-
-
 This project is the source code of the stupid copy paster
 
-He changed his Discord address. He new discord adress : Winter.#1981 (803614034115952680)
+He changed his discord username about 20-30 times. He new discord adress : Dexealon#2000 (803614034115952680)
+
+I'm tired of writing here now, so I'm leaving the person's discord id. You can query the id from this site.
+
+Enter the site and type this is. and his discord address xD
+
+HE DISCORD ID = 803614034115952680
+
+Discord id query site: https://discord.id
+
+#Example: 
+
+![alt text](https://i.imgur.com/g4uqkPF.png)
 
 #Paster Alone Dark Discord: https://discord.com/invite/4GQbcHxU (LOL IDIOT PASTER ALONE DARK)
 
